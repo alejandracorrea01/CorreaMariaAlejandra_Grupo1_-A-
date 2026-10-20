@@ -23,7 +23,7 @@
 <br>
 6. Mezcle la pasta con la salsa y sirva caliente.
 <br>
-3. Caliente el aceite y ZOFRIE el ajo picado.
+3. Caliente el aceite y sofríe el ajo picado.
 <br>
 5. Incorpore la crema y REVUELBE suavemente.
 <br>
